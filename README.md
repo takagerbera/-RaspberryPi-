@@ -12,4 +12,4 @@
 https://tohokuitbussanten.doorkeeper.jp/events/29074
 
 ## 参考資料ほか
-* イベントURL: 
+* イベントURL: https://www.facebook.com/n/?events%2F688912231213671%2F
